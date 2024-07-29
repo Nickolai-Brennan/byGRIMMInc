@@ -1,1 +1,12 @@
-
+1. **GitHub:** [Nickolai-Brennan](https://github.com/Nickolai-Brennan)
+2. **Email:** nsbrennan1991@gmail.com
+3. **Inkitt:** [KlausDreadful](https://Inkitt.com/KlausDreadful)
+4. **Tumblr:** [bygrimm](https://www.tumblr.com/bygrimm?source=share)
+5. **Typeshare:** [KlausDreadful](https://Typeshare.co/KlausDreadful)
+6. **Facebook:** [nbrennan91](https://www.facebook.com/nbrennan91?mibextid=ZbWKwL)
+7. **Facebook Page:** [byGRIMM](https://www.facebook.com/share/vJGGo3YE67eKFcqu/?mibextid=qi2Omg)
+8. **Pinterest:** [Profile](https://pin.it/7zP8KlrBw)
+9. **X (Twitter):** [KlausDreadful](https://x.com/KlausDreadful?t=gDfiCB7dsRmPHl9L_mb0VA&s=09)
+10. **LinkedIn:** [Nicholassbrennan](https://www.linkedin.com/in/nicholassbrennan?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
+11. **Medium:** [@klausdreadful](https://medium.com/@klausdreadful)
+12. **Prose:** [KlausDreadful](https://www.theprose.com/KlausDreadful)
